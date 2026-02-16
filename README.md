@@ -1,3 +1,3 @@
 
-<p align="center"><img src="https://i.imgur.com/lqBOzb5.jpeg" style="width:450px;height:370px;">
+<p align="center"><img src="https://i.imgur.com/B0DqFia.png> style="width:400px;height:300px;">
 
